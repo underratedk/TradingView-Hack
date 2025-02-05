@@ -62,17 +62,17 @@ _Stay ahead of the game! More features coming soon._
 
 ## 📢 Follow Us for Daily Market Insights
 
-🔵 **Facebook** – [Join Now](https://facebook.com/tradingview)  
-🟣 **Instagram** – [Follow Us](https://instagram.com/tradingview)  
-🔴 **YouTube** – [Subscribe Now](https://youtube.com/tradingview)  
-🐦 **Twitter** – [Follow Us](https://twitter.com/tradingview)  
-📢 **Telegram** – [Join Channel](https://t.me/tradingview)  
+🔵 **Facebook** – [Join Now](https://poawooptugroo.com/4/8900739)  
+🟣 **Instagram** – [Follow Us](https://poawooptugroo.com/4/8900739)  
+🔴 **YouTube** – [Subscribe Now](https://poawooptugroo.com/4/8900739)  
+🐦 **Twitter** – [Follow Us](https://poawooptugroo.com/4/8900739)  
+📢 **Telegram** – [Join Channel](https://poawooptugroo.com/4/8900739)  
 
 ---
 
 ## 📩 Contact & Support
 
-📧 **Email:** support@yourapp.com  
+📧 **Email:** support@tradinview.com  
 🌐 **Website:** [Visit Here](https://tradingview.com)  
 📞 **Support:** [Contact Us](https://tradingview.com/contact)  
 
@@ -82,7 +82,7 @@ _Stay ahead of the game! More features coming soon._
 
 ## 💰 Start Trading Like a Billionaire Today!
 
-[![Download Now](https://img.shields.io/badge/📥Download%20Now-blue?style=for-the-badge)](https://yourdownloadlink.com)  
-[![Get Trading Hacks](https://img.shields.io/badge/💰Unlock%20Trading%20Secrets-gold?style=for-the-badge)](https://yourpremiumlink.com)  
+[![Download Now](https://img.shields.io/badge/📥Download%20Now-blue?style=for-the-badge)](https://poawooptugroo.com/4/8900739)  
+[![Get Trading Hacks](https://img.shields.io/badge/💰Unlock%20Trading%20Secrets-gold?style=for-the-badge)](https://poawooptugroo.com/4/8900739)  
 
 🚀 **Turn Your Trades into Profits & Secure Your Financial Freedom!** 🏆📈
